@@ -12,9 +12,7 @@ futura agronoma.🤠
 
 amo animais.
 
-01/03/2023.
-
-![](https://media.tenor.com/Uc9hFhgsjjQAAAAM/cat-rest-lazy-laying-bed.gif)
+![](https://media.tenor.com/WWaMJCNAg6gAAAAM/reindeer-peak.gif)
 
 
 
